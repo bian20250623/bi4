@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://cg963.pages.dev/">91黑料网</a>
 
-点击访问：<a href="https://cg765.pages.dev/">吃瓜爆料网</a>
+点击访问：<a href="https://cg69.pages.dev/">吃瓜不打佯</a>
 
 
 
